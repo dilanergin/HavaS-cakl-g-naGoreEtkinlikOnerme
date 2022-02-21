@@ -1,0 +1,2 @@
+# HavaSıcaklıgınaGoreEtkinlikOnerme
+ 
